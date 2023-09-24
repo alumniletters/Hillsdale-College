@@ -1,4 +1,5 @@
-Nathan Loizeaux, Hillsdale College Class of ‘04
+# Nathan Loizeaux, Hillsdale College Class of ‘04
+
 Dear Dr. Arnn, and the administration of Hillsdale College,
 
 A number of my fellow Hillsdale alums are fighting over the most ethical response to a petition - several petitions - concerning what the college should do or say, if anything, with regard to the Black Lives Matter movement.
