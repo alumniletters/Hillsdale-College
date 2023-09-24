@@ -1,5 +1,7 @@
-Hillsdale College should uphold the Legacy of Frederick Douglass
-frederick-douglass-gettyimages-3324112-feature.jpg
+# Hillsdale College should uphold the Legacy of Frederick Douglass
+
+![frederick-douglass-gettyimages-3324112-feature.jpg](https://github.com/alumniletters/Hillsdale-College/blob/main/images/frederick-douglass-gettyimages-3324112-feature.jpg?raw=true)
+
 The following letter was originally posted on Change.org where it received 100 signatures.
 
 A statue of Frederick Douglass stands on Hillsdale College’s campus, a testament to the school’s continuing pride in its abolitionist roots. As alumni, and fellow heirs to that legacy, we would call the school administrators’ attention to Douglass’s 1857 remarks on the Dred Scott decision: “All I ask of the American people is that they live up to the Constitution, adopt its principles, imbibe its spirit, and enforce its provisions." 
