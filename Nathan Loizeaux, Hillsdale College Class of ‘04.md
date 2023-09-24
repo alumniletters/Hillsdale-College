@@ -21,9 +21,9 @@ I’ll keep this brief.
 
 First, this was Hillsdale in the ‘70s.
 
-![nate-letter1.png](https://github.com/alumniletters/Hillsdale-College/blob/main/nate-letter1.png?raw=true)
-![nate-letter2.png](https://github.com/alumniletters/Hillsdale-College/blob/main/nate-letter2.png?raw=true)
-![nate-letter.png](https://github.com/alumniletters/Hillsdale-College/blob/main/nate-letter.png?raw=true)
+![nate-letter1.png](https://github.com/alumniletters/Hillsdale-College/blob/main/images/nate-letter1.png?raw=true)
+![nate-letter2.png](https://github.com/alumniletters/Hillsdale-College/blob/main/images/nate-letter2.png?raw=true)
+![nate-letter.png](https://github.com/alumniletters/Hillsdale-College/blob/main/images/nate-letter.png?raw=true)
 
 These pictures are from the Winona, from 1972 to 1977. They are striking to my generation of Hillsdale alums for the simple reason that, in our day, no student housing, no matter how egalitarian, would ever be allowed to call itself ‘Ethnic House,’ nor would an organization like ‘Blacks United’ be tolerated several years running.
 
