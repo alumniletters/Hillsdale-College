@@ -1,4 +1,5 @@
-Open Letter to Hillsdale College
+# Open Letter to Hillsdale College
+
 Even in the wake of a national uprising for racial justice in this nation, Hillsdale College has remained silent on the matter of Black Lives. It has been nearly five months since Ahmaud Arbery was shot and killed while on a jog, four months since Breonna Taylor was murdered while in her own home, and weeks since George Floyd was choked to death by the knee of a police officer. These are only the most recent names of our fellow citizens lost, those we know of because their deaths were publicized. How many more lives have we lost, quietly, as we carried on with our lives? 
 
 As an institution, you’re quite vocal about your founding by Free Will Baptists and abolitionists. A proud legacy of the school has always been that a higher percentage of Hillsdale students enlisted in the Civil War than from any other Michigan college, and some of those students even earned accolades. It is also well known and oft repeated that because of the college’s “anti-slavery reputation” many notable figures visited campus to speak, including Frederick Douglass and Edward Everett. 
